@@ -1,1 +1,1 @@
-# ARISE---CA-Edition
+# Rise beyond your limits
